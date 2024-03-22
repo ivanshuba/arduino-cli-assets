@@ -1,0 +1,1 @@
+This is a stub file. Later, this link will point to a web page with Titan25 guide.
